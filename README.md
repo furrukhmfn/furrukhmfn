@@ -14,8 +14,11 @@
   --------- EDUCATION ------------
   
   BS Aerospace Engineering 
+  
   Nov. 2018 - Sept. 2022
+  
   College of Aeronatical Engineering,
+  
   National University of Science and Technology
 
 
